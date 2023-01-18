@@ -7,4 +7,3 @@
 - 📫 How to reach me: douidi.sofyan@gmail.com
 - 😄 Pronouns: No homo,
 - 🎥 Favorite movie : Taxi Driver.
--->
